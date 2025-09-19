@@ -1,1 +1,1 @@
-Okay!
+Please copy this repo!
